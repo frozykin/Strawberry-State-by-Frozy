@@ -1,1 +1,0 @@
-# Strawberry-State-by-Frozy
